@@ -1,4 +1,4 @@
-## Hi I'm Hapy <img src="https://cliply.co/wp-content/uploads/2019/06/391906110_WAVING_HAND_400px.gif" width="20">
+## Hi I'm Hapy <img src="https://cliply.co/wp-content/uploads/2019/06/391906110_WAVING_HAND_400px.gif" width="30">
 
 ### Programming Languages 🌐
 
