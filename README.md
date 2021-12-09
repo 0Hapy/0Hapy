@@ -1,4 +1,4 @@
-## Hi I'm Hapy <img src="https://raw.githubusercontent.com/nixin72/nixin72/master/wave.gif" width="30">
+## Hi I'm Hapy <img src="https://thumbs.gfycat.com/ChubbyDarkHalicore-size_restricted.gif" width="30">
 
 ### Programming Languages 🌐
 
